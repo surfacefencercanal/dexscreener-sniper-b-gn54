@@ -1,4 +1,4 @@
-# 
+# Enhance your trading with high-frequency dexscreener sniper bot | degen-coin-scanning + liquidity-sniping, the #1 dexscreener sniper bot. Includes degen-coin-scanning and
 
 
 
